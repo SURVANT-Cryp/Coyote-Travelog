@@ -6,4 +6,4 @@ the project being incorprated into my dissertation in some form.<br>
 <br>
 More info on community districts here: https://communityprofiles.planning.nyc.gov<br>
 <br>
-More information coming shortly. 
+More info coming shortly. 
