@@ -1,6 +1,6 @@
 # coyote-travelogue
 
-<i>coyote travelogue</i> is an experimental book composed of found text from the streets and spaces of New York City (2017–present) and from my walk across Illinois to raise funds and awareness for people experiencing homelessness in the state (summer of 2019).<br>
+<i>coyote travelogue</i> is an in-progress experimental book composed of found text from the streets and spaces of New York City (2017–present) and from my walk across Illinois to raise funds and awareness for people experiencing homelessness in the state (summer of 2019).<br>
 <br>
 In her book, <i>Geographies of Writing: Inhabiting Places and Encountering Difference</i> (2004), Nedra Reynolds states that “Although geographers do not have a monopoly on ‘seeing’ as a research practice, they might suggest that understanding spatial and cultural difference begins on the ground, for example, by walking through neighborhoods.” coyote travelogue is an in-progress writing project so far composed of two “convolutes” (from the German term <i>konvolut</i>, meaning sheaf or dossier of notes): convolute I consists of text I have collected while walking in New York City over the last two years and convolute II consists of text I collected while walking across the state of Illinois this past summer. I plan on adding a third convolute, which will consist of text I collect while walking across the United States.<br>
 <br>
