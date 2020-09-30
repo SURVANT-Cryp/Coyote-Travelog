@@ -10,5 +10,4 @@ In her book, <i>Geographies of Writing: Inhabiting Places and Encountering Diffe
 <br>
 “You could create a psychogeographic map of a city’s language by a making a dérive from point A to point B, writing down every word your eyes encounter on buildings, signage, parking meters, flyers and so forth. You’d end up with a trove of rich language, myriad in its tones and directives, comprised of peripheral words you’d most likely never paid attention to, such as the fine print on a parking meter.”—Kenneth Goldsmith, <i>Uncreative Writing</i><br>
 <br>
-<br>
 More info coming shortly. 
