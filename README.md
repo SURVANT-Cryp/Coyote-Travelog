@@ -1,4 +1,4 @@
-# coyote-travelogue
+# coyote-travelog
 
 <i>coyote travelogue</i> is an in-progress experimental book composed of found text from the streets and spaces of New York City (2017–present).<br>
 <br>
