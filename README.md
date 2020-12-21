@@ -8,5 +8,5 @@ My intention is not to “exhaust” a place within the city, but rather, to fin
 <br>
 <b>Resources</b><br>
 <br>
-https://communityprofiles.planning.nyc.gov/
+https://communityprofiles.planning.nyc.gov
 
