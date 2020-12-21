@@ -6,7 +6,7 @@ In her book, <i>Geographies of Writing: Inhabiting Places and Encountering Diffe
 <br>
 My intention is not to “exhaust” a place within the city, but rather, to find materials that “articulate place”—text I call “emblematic language.” I collect (and by “collect” I mean take photos with my smartphone) things like street signs, store awnings, graffiti and stickers, flyers on community boards, menus, inscriptions on monuments, WiFi network names, wanted posters, haikus on bathroom stalls, phone numbers above glory holes in bathroom stalls, giant advertisements in Times Square, storefront church names in Harlem and in the Bronx, foreclosure notices, cardboard signs of people in the streets, and signs at protests. I believe this language and the corresponding metadata capture the zeitgeist of this tumultuous moment—a time characterized by the intersection of widely differing ideologies. This is a conceptual writing, an ambulatory poetry of place, that at once says something about New York City and evokes the world beyond it. <br>
 <br>
-<b>Resources</b><br>
+<b>Resources:</b><br>
 <br>
-https://communityprofiles.planning.nyc.gov
+Community Districts: https://communityprofiles.planning.nyc.gov
 
