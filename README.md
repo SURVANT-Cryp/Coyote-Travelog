@@ -6,7 +6,8 @@ In her book, <i>Geographies of Writing: Inhabiting Places and Encountering Diffe
 <br>
 My intention is not to “exhaust” a place within the city, but rather, to find materials that are capable of articulating place—text I call “emblematic language.” I collect many different kinds of text: street signs, store awnings, graffiti and stickers, flyers on community boards, menus, inscriptions on monuments, WiFi network names, “wanted” posters, haikus on bathroom stalls, phone numbers above glory holes in bathroom stalls, giant advertisements in Times Square, storefront church names in Harlem and in the Bronx, foreclosure notices, cardboard signs of people in the streets, and signs at protests. I believe the language of the streets and spaces of the city has the potential to capture the zeitgeist of this tumultuous moment—a time characterized by the intersection of widely differing ideologies. This is a conceptual writing, an ambulatory poetry of place, that at once says something about New York City (past and present) and evokes the world beyond it. <br>
 <br>
-in 2020, a selection from <i>coyote travelog</i> was included in the Festival of the Smallest (Dordrecht, NL). More information here: 
+in 2020, a selection from <i>coyote travelog</i> was included in the Festival of the Smallest (Dordrecht, NL).<br>
+More information here: 
 https://thesmallest.222lodge.nl/patrickquinn/
 
 
