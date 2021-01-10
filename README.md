@@ -8,6 +8,10 @@ My intention is not to “exhaust” a place within the city, but rather, to fin
 <br>
 In 2020, a selection from <i>coyote travelog</i> was exhibited in the Festival of the Smallest (Dordrecht, NL).<br>
 More information here: 
-https://thesmallest.222lodge.nl/patrickquinn/
+https://thesmallest.222lodge.nl/patrickquinn/<br>
+<br>
+<b>Notes:</b><br>
+<br>
+Reynolds, Nedra. Geographies of Writing: Inhabiting Places and Encountering Difference. Carbondale: Southern Illinois University Press, 2007. 
 
 
