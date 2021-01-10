@@ -11,6 +11,6 @@ More information here:
 https://thesmallest.222lodge.nl/patrickquinn/<br>
 <br>
 <b>Notes:</b><br>
-Reynolds, Nedra. Geographies of Writing: Inhabiting Places and Encountering Difference. Carbondale: Southern Illinois University Press, 2007. 
+Reynolds, Nedra. <i>Geographies of Writing: Inhabiting Places and Encountering Difference</i>. Carbondale: Southern Illinois University Press, 2007. 
 
 
