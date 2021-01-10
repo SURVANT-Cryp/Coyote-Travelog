@@ -1,7 +1,5 @@
 # coyote-travelog
 
-Full Version: https://assets.codepen.io/4404785/coyote+travelog+.pdf.zip<br>
-<br>
 <i>coyote travelog</i> is an ongoing book composed of found text from the streets and spaces of New York City (2017–present).<br>
 <br>
 In her book, <i>Geographies of Writing: Inhabiting Places and Encountering Difference</i> (2004), Nedra Reynolds writes: “Although geographers do not have a monopoly on ‘seeing’ as a research practice, they might suggest that understanding spatial and cultural difference begins on the ground, for example, by walking through neighborhoods.” For the last three years, I have scanned the streets and spaces of New York City for text that might help me better understand the social, cultural, and political realities and conditions of the vast and enigmatic metropolis. <i>coyote travelog</i> is a record of my wandering. It is a textual portrait of the city, an urban memoir composed of found language.<br>
@@ -11,6 +9,8 @@ My intention is not to “exhaust” a place within the city, but rather, to fin
 In 2020, a selection from <i>coyote travelog</i> was exhibited in the Festival of the Smallest (Dordrecht, NL).<br>
 More information here: 
 https://thesmallest.222lodge.nl/patrickquinn/<br>
+<br>
+Full Version: https://assets.codepen.io/4404785/coyote+travelog+.pdf.zip<br>
 <br>
 <b>Notes:</b><br>
 Reynolds, Nedra. <i>Geographies of Writing: Inhabiting Places and Encountering Difference</i>. Carbondale: Southern Illinois University Press, 2007. 
