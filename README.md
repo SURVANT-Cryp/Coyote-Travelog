@@ -1,6 +1,6 @@
 # Coyote-Travelog
 
-<i>coyote travelog</i> is a book composed of found text from the streets and spaces of New York City (2017–2020).<br>
+<i>Coyote Travelog</i> is a book composed of found text from the streets and spaces of New York City (2017–2020).<br>
 <br>
 In her book, <i>Geographies of Writing: Inhabiting Places and Encountering Difference</i> (2004), Nedra Reynolds writes: “Although geographers do not have a monopoly on ‘seeing’ as a research practice, they might suggest that understanding spatial and cultural difference begins on the ground, for example, by walking through neighborhoods.” For the last three years, I have scanned the streets and spaces of New York City for text that might help me better understand the social, cultural, and political realities and conditions of the vast and enigmatic metropolis. <i>Coyote Travelog</i> is a record of my wandering. It is a textual portrait of the city, an urban memoir composed of found language.<br>
 <br>
