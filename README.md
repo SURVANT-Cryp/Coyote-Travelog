@@ -1,4 +1,4 @@
-# coyote-travelog
+# Coyote-Travelog
 
 <i>coyote travelog</i> is a book composed of found text from the streets and spaces of New York City (2017–2020).<br>
 <br>
@@ -8,7 +8,7 @@ My intention is not to “exhaust” a place within the city, but rather, to fin
 <br>
 Full Version: https://www.hystericallyreal.com/post/659917011681509376/coyote-travelog-by-patrick-quinn-volume-1-pdf<br>
 <br>
-In 2020, a selection from <i>coyote travelog</i> was exhibited in the Festival of the Smallest (Dordrecht, NL).<br>
+In 2020, a selection from <i>Coyote Travelog</i> was exhibited in the Festival of the Smallest (Dordrecht, NL).<br>
 More information here: https://thesmallest.222lodge.nl/patrickquinn/<br>
 <br>
 <b>Notes:</b><br>
